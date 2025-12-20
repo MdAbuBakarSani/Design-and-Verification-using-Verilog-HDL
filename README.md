@@ -32,8 +32,6 @@ Md Abu Bakar Sani
 
 Bachelor of Science in Electrical and Electronics Engineering
 
-Leading University
-
 Grade: 3.88 CGPA
 
 🔗 LinkedIn Profile- (https://www.linkedin.com/in/md-abu-bakar-sani-448639177/)
